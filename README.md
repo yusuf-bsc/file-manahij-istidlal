@@ -1,1 +1,1 @@
-# wpu-file-manajih-istidlal
+# wpu-file-manahij-istidlal
